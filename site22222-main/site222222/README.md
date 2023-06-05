@@ -1,1 +1,0 @@
-# ta-no-jogo-e-pra-usar
